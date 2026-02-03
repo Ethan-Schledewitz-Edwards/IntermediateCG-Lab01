@@ -1,6 +1,7 @@
 # IntermediateCG-Lab01
 
-Video link
+Video link: 
+https://youtu.be/DjmfTE6COjw
 
 References
 
