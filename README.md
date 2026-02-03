@@ -3,6 +3,9 @@
 Video link: 
 https://youtu.be/DjmfTE6COjw
 
+Shot breakdown:
+https://docs.google.com/spreadsheets/d/1qWcfBkmsAI-aPAcOgrCt1cxlcgcA-99HTNS23_4oLIk/edit?gid=0#gid=0 
+
 References
 
 Office Plant:
